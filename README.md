@@ -1,1 +1,2 @@
-# depressed-hero
+# Depressed Hero
+Notre héros se bat contre la dépression et ère sans but dans la vie. Un jour, il rencontre la reine des démons alors vieille de 500 ans. Rapidement, elle va s'intéresser à lui. La reine des démons, belle et forte, lui propose alors de s'occuper de lui...
